@@ -1,1 +1,1 @@
-## A weekly newsletter that can save me a lot of time.
+## A weekly newsletter services 
